@@ -1,3 +1,3 @@
 # sindhu-23
 <br>
-Author - sindhu kumari
+Author - sindhu (praveen kumar)
